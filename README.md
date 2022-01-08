@@ -1,1 +1,0 @@
-# pritamsapkota.github.io
